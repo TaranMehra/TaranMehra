@@ -1,4 +1,4 @@
-##🚀 "Hey 👋 I'm Taran — broadcasting live from Earth!"
+🚀 Hey 👋 I'm Taran — broadcasting live from Earth!
 
 
 <!--
